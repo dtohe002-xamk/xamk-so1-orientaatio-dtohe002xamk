@@ -1,0 +1,1 @@
+# xamk-so1-orientaatio-dtohe002xamk
